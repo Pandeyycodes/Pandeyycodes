@@ -1,4 +1,4 @@
-## Hi there 👋
+## 21. engineer. more ideas than time.
 
 <!--
 **Pandeyycodes/Pandeyycodes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
